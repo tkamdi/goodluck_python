@@ -1,1 +1,1 @@
-This is a program fro goodluck in 2024
+This is a program for goodluck in 2024
